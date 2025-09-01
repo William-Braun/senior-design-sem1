@@ -1,5 +1,5 @@
 # William Braun
-Cincinnati, OH • (513) 908-7454 • braunwb@mail.uc.edu
+Cincinnati, OH • (513) 908-7454 • braunwb@mail.uc.edu  
 [LinkedIn](https://www.linkedin.com/in/william-braun-/?) • [GitHub](https://github.com/William-Braun)
 
 ## Co-op or Other Experience and Responsibilities
